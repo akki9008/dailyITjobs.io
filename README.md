@@ -16,4 +16,4 @@ Experience:Freshers
 CTC:3 to 5 LPA
 Location:India
 
- 📩 To apply, Click on this link
+ 📩 To apply, Click on this link [https://www.firstnaukri.com/job-listings-junior-associate-atos-syntel-bangalore-bengaluru-0-to-1-years-020523004267?sid=16830772973121197&jobPosition=13&pageNo=1]
